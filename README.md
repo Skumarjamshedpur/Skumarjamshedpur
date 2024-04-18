@@ -1,5 +1,5 @@
-hi I am Sushil Sheo kumar
-I am India , Jharkhand , Jamshedpur ( Beradhipa Harharguttu Bagbera Jamshedpur Jharkhand India - 831002 )
-I am propreitor of Scrap Trading company and Software Engineer as well
-I love to learn more and more to make me upgrade with modern sicence and technology specially with codingand management
-anyone can reach me @ 091 8877088324 or 091 8709335225
+With over 15 years of entrepreneurial experience coupled with a robust background in engineering, education, and functional ERP consultancy, I bring a unique blend of skills and expertise to the table.
+In addition to my foundational education in IT and years spent as an entrepreneur, I have recently expanded my knowledge base through rigorous coursework in Data Science and Machine Learning at IIT-G and a AFM course at XLRI. Moreover, I have supplemented my learning with various certificate courses from Udemy, covering a wide range of topics such as Product Management, Python programming, Financial Analysis, Quantum Computing, and many others.
+My journey has equipped me with a comprehensive understanding of both technical intricacies and business dynamics. As a former lecturer in the Department of MCA, I developed a passion for imparting knowledge and fostering innovation. This experience has honed my communication skills and enabled me to convey complex concepts in a clear and concise manner.
+I am particularly excited about the prospect of applying my expertise in data analytics, financial management, and strategic planning to drive impactful business outcomes. Whether it's optimizing processes, leveraging emerging technologies, or spearheading initiatives, I am committed to delivering tangible results and driving organizational growth.
+I am confident that my multifaceted background, coupled with my relentless drive for learning and growth, makes me a valuable asset. I am eager to explore how my skills and experiences align with your needs and contribute to the continued success of your team.
